@@ -1,5 +1,4 @@
-./Kado
-./Bendo
-Bele copas ba mz keta hamos author nia naran lae ema dahn ita bulak 
-Keta bangga sai programmer copas tamba o sei lahatene buat ida
-Obrigado Barak ....
+BA O IDA BE COPY PASTE
+APRENDE HALO RASIK O NIA LOGIKA
+KETA COPY EMA NIAN DEMAIS
+KETA BUAT HOTU HUSU CHAT GPT
